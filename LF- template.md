@@ -64,27 +64,9 @@ This means me time, spending time with family and friends, and so on. When you�
 
 I would highly recommend vacations. Just go! If you don’t take the time out to enjoy the fruits of your labors, you are missing the whole point. Just [Make time ](http://www.librarything.com/work/22348415/reviews/162558963)
 
-
-
-###### **Value Work breaks** · 4 mins read
-
-I would recommend you take time out throughout your day. For instance lunch breaks and even tea break. In this break periods, eat proper food, listen to some music or some podcast, spend time with someone who you really get along with to encourage and lift your spirit.
-
 ###### **Take your hobby seriously** . 4 mins read
 
 Other than work, make time for your what you love doing. If you have not yet realized your hobby try to; work out, cook, bake, engage in community service or be active in social media to share some knowledge to people as a way to give back to the society or even try [tiktok](https://www.tiktok.com) challenges. Just figure out what can work for you and seriously work on it.
-
-###### **Manage your time**: 5 mins read
-
-Set yourself limit for working hours to personal hours. You could consider how many hours you’re willing to work in a single day or week, and stick to it.
-
-Ask yourself whether you need to respond to, or action, a request straight away. If you have a long list of tasks, spend time establishing their order of importance starting from the most urgent to the least urgent
-
-Be a believer in writing down your plans and goals
-
-Also, leave the office at a reasonable time and come back ready for the next day. 
-
-Don't overcommit
 
 ###### **Self-care treatment**  7 mins read
 
@@ -96,9 +78,9 @@ Do what you can to limit your intake of things like alcohol, fast-food, caffeine
 
 Above all, remember that your ultimate “duty of care” is to yourself.
 
-#### Conclusion. 6 mins
 
-A good work-life balance can increase productivity, create a happier work environment and increase your overall health.
+
+In conclusion, a good work-life balance can increase productivity, create a happier work environment and increase your overall health.
 
 Work-life balance doesn’t happen on a snap of a finger. It’s a process that will change with your priorities. 
 
